@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=q-84&color=eceeee&style=plastic&label=view+counter!+➜+&abbreviated=true)
   <p align="center">
 <picture>
  <source media="(prefers-color-scheme: dark)" srcset="https://files.catbox.moe/ke593p.png">
