@@ -9,7 +9,7 @@
   <p align="center">
 Q84 or lottie
 <p align="center">
-read my rentry boy ..
+read my <a href="https://rentry.co/join_white_society">rentry ..
   </p>
 <p align="center">
 minor & co-host!
