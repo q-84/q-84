@@ -18,5 +18,5 @@ minor & co-host!
 <sup>hello charlotte fans please interact!</sup>
 </p>
 <p align="center">
-    <img src="https://files.catbox.moe/y6dmg1.png"/>
+    <img src="https://files.catbox.moe/t67fg4.png"/>
 </p>
