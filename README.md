@@ -18,6 +18,9 @@ read my <a href="https://rentry.co/join_white_society">rentry ..
 minor & co-host!
 </p>
 <p align="center">
+taken !! <a href="https://github.com/clubcrackers"><3
+</p>
+<p align="center">
 <sup>hello charlotte fans please interact!</sup>
 </p>
 <p align="center">
